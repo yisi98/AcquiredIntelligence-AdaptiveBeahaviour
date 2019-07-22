@@ -1,0 +1,2 @@
+# AcquiredIntelligence&AdaptiveBeahaviour
+ 
